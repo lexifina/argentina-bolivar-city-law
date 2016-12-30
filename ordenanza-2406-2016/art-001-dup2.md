@@ -1,0 +1,1 @@
+ARTÍCULO PRIMERO: En los aspectos técnicos básicos del llamado a Concurso de Ideas, como así también en los de índole económica, financiera, legal y cronológica, tienen validez complementaria a este convenio, los folios Nº 1, 2, y 3 de la gestión preliminar de fecha 18 de marzo de 2016, que se agrega al presente como Anexo.----------------------
