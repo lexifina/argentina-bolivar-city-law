@@ -1,0 +1,5 @@
+Ordenanza Nº2397
+Ordenanza Nº 2397
+Bolivar, 13/12/2016
+ORDENANZA
+TÍTULO I GENERALIDADES
