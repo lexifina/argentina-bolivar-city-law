@@ -1,0 +1,5 @@
+Ordenanza Nº2472
+Ordenanza Nº 2472
+Bolivar, 27/12/2017
+ORDENANZA
+AMBITO DE APLICACION
