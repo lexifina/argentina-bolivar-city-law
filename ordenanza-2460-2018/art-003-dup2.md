@@ -1,0 +1,1 @@
+Artículo 3º: Transferir a partir del 16 de Marzo de 2017, a la órbita de la SECRETARÍA DE HACIENDA, la DIRECCIÓN QE CONTROL Y GESTIÓN dependiente de la entonces Secretaría de Control y Coordinación de Procesos de Gestión, como también los cargos, plantas de personal, créditos presupuestarios, recursos económicos, financieros y materiales aprobados para la mencionada Dirección.

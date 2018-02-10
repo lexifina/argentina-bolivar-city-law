@@ -1,0 +1,1 @@
+Artículo 8º: Determínense como acciones y responsabilidades de la DIRECCIÓN DE EMPLEO MUNICIPAL, las descriptas en el Anexo III del Decreto Nº 1104 de fecha 1 de Septiembre de 2015 para la Oficina de Empleo Municipal:

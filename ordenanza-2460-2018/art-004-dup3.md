@@ -1,0 +1,1 @@
+Artículo 4°: La erogación que demande la implementación del presente Decreto será imputada a: Jurisdicción1110102000- Secretaría de Gobierno-01- Relaciones con la Comunidad, del Presupuesto de Gastos vigente.
