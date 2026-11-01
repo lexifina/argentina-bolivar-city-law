@@ -1,0 +1,11 @@
+{
+  "path": "ar-b-bolivar",
+  "code": "AR-B-BOLIVAR",
+  "name": "Bolívar",
+  "level": "municipality",
+  "parent": "ar-b",
+  "repo": "https://github.com/lexifina/argentina-bolivar-city-law",
+  "build": "built: municipal ordinances (60 ordinances, 60 versions) from https://sibom.slyt.gba.gob.ar/cities/15",
+  "language": "es",
+  "sources": 1
+}
